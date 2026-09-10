@@ -1,6 +1,6 @@
 
 - 👋 Olá, sou o João Felipe
-- 🌱 18 anos
+- 🌱 21 anos
 - 👀 Sistemas de Informação - UNIFEBE
 - 📫 @duartejoaolipe
 
